@@ -1,7 +1,7 @@
 # WEB-BATIK
 TUGAS BESAR RPL
-> anzala hidayat 
-> muhammad fajrul andam ashaq
-> Margareta Fidelina Wursok
-> Maulana Muammar Farhan
+> anzala hidayat <br>
+> muhammad fajrul andam ashaq <br>
+> Margareta Fidelina Wursok <br>
+> Maulana Muammar Farhan <br>
 > Talita Thereyzia Malabar
