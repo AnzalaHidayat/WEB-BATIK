@@ -4,4 +4,9 @@ TUGAS BESAR RPL
 > muhammad fajrul andam ashaq <br>
 > Margareta Fidelina Wursok <br>
 > Maulana Muammar Farhan <br>
-> Talita Thereyzia Malabar
+> Talita Thereyzia Malabar <br>
+<br>
+<img src=""><br>
+<img src=""><br>
+<img src=""><br>
+<img src=""><br>
